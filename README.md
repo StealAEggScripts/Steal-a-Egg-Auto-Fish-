@@ -1,3 +1,20 @@
+DISCLAIM: Füllt euer inventar mit 115/115 Eggs (Ihr verzichtet auf Tiedeler Eggs [2.1-90B] Aber ihr erhaltet eure Belohnungen im Pass!)
+Bitte wegt ab ob ihr wertvolle Eier Haben wollt, und regelmäsißg eure Angel auf die "3" Setzt oder euer inventar Füllt für den Pass!!!!!!!!!!)
+DISCLAIM: Füllt euer inventar mit 115/115 Eggs (Ihr verzichtet auf Tiedeler Eggs [2.1-90B] Aber ihr erhaltet eure Belohnungen im Pass!)
+Bitte wegt ab ob ihr wertvolle Eier Haben wollt, und regelmäsißg eure Angel auf die "3" Setzt oder euer inventar Füllt für den Pass!!!!!!!!!!)
+DISCLAIM: Füllt euer inventar mit 115/115 Eggs (Ihr verzichtet auf Tiedeler Eggs [2.1-90B] Aber ihr erhaltet eure Belohnungen im Pass!)
+Bitte wegt ab ob ihr wertvolle Eier Haben wollt, und regelmäsißg eure Angel auf die "3" Setzt oder euer inventar Füllt für den Pass!!!!!!!!!!)
+DISCLAIM: Füllt euer inventar mit 115/115 Eggs (Ihr verzichtet auf Tiedeler Eggs [2.1-90B] Aber ihr erhaltet eure Belohnungen im Pass!)
+Bitte wegt ab ob ihr wertvolle Eier Haben wollt, und regelmäsißg eure Angel auf die "3" Setzt oder euer inventar Füllt für den Pass!!!!!!!!!!)
+DISCLAIM: Füllt euer inventar mit 115/115 Eggs (Ihr verzichtet auf Tiedeler Eggs [2.1-90B] Aber ihr erhaltet eure Belohnungen im Pass!)
+Bitte wegt ab ob ihr wertvolle Eier Haben wollt, und regelmäsißg eure Angel auf die "3" Setzt oder euer inventar Füllt für den Pass!!!!!!!!!!)
+DISCLAIM: Füllt euer inventar mit 115/115 Eggs (Ihr verzichtet auf Tiedeler Eggs [2.1-90B] Aber ihr erhaltet eure Belohnungen im Pass!)
+Bitte wegt ab ob ihr wertvolle Eier Haben wollt, und regelmäsißg eure Angel auf die "3" Setzt oder euer inventar Füllt für den Pass!!!!!!!!!!)
+DISCLAIM: Füllt euer inventar mit 115/115 Eggs (Ihr verzichtet auf Tiedeler Eggs [2.1-90B] Aber ihr erhaltet eure Belohnungen im Pass!)
+Bitte wegt ab ob ihr wertvolle Eier Haben wollt, und regelmäsißg eure Angel auf die "3" Setzt oder euer inventar Füllt für den Pass!!!!!!!!!!)
+
+
+
 # 🎣 Auto Fish Angel – Anleitung Für MoTastisch 
 Discord  @hundeschmock
 Willkommen beim **Auto Fish Angel Script!**
